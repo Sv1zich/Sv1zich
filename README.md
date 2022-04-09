@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sv1zich
 - 👀 I’m interested in:)))
 - 🌱 I’m currently learning HTML/Python and English language
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me you cannot reach me:(
+- 💞️ I’m looking to collaborate on: ...
+- 📫 How to reach me: You cannot reach me:(
 - 😂 Thats all have nice day!
